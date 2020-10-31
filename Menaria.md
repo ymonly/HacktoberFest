@@ -1,0 +1,2 @@
+Menaria
+Udaipur
